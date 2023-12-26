@@ -1,1 +1,1 @@
-# 
+There's probably a better way to host pics 🤔
